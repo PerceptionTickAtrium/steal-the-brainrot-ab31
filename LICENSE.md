@@ -1,4 +1,4 @@
-#  
+#  steal the brainrot base Script stealth is the best steal the brainrot base Script, featuring esp and private server access. Safe and powerful for all
 
 
 
